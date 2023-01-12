@@ -3,11 +3,15 @@
 # Aneta Kloc
 
 ## Doświadczenie:
-**Sklep ogólnospożywczy**
+
+**Sklep ogólnospożywczy**\
 2012-2014
-**Biuro rachunkowe**
+
+**Biuro rachunkowe**\
 2014-2015
-**Agencja nieruchomości**
+
+**Agencja nieruchomości**\
 2015-2019
-**Studio urody**
+
+**Studio urody**\
 2019-2022
